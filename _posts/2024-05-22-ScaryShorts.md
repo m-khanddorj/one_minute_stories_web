@@ -1,0 +1,1 @@
+A man walked into a library and asked for books about paranoia. "They're right behind you," whispered the librarian.

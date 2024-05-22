@@ -1,0 +1,1 @@
+On a stormy night, as the thunder clapped in the distance, a lone figure emerged from the darkness. Their figure was shrouded in a thick cloak, obscuring their face. What were they hiding? And what secrets did they carry with them?
